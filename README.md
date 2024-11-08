@@ -1,2 +1,2 @@
 # ai-repo
-GitHub の最初のリポジトリ
+I like　sports🎽and sweets🍩
